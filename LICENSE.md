@@ -1,4 +1,4 @@
-
+ultimate Automation for Affinity Photo for macOS - asset management and 3D rendering offers the most advanced Affinity Photo for macOS automation, with asset management and 3D
 
 
 
